@@ -1,0 +1,147 @@
+[Speaker 1]: “Students!” A shrill, tiny voice, heightened to the point it almost broke and started to sound like a scream. “Students!” she tried once more; this time, she banged a ladle against a pot rhythmically. The ladle gave up at the sixth beat.
+
+The noise still didn’t recede. In the classroom stood a couple of small kitchenettes; one slightly bigger kitchenette stood at the front near a blackboard. *Welcome to an Introduction to Cooking*, it said on the whiteboard. *By Miss Hippo*, in superb, practiced italic letters.
+
+“STUDENTS!” The large hippo in front of the class struck her kitchenette with both paws; one of the cooking pans pancaked with a metallic clang. “WAAAAAHHHHH!” Ms. Hippo snapped a large knife in half; it was catapulted through the room. The whole class fell silent as a mouse.
+
+[Speaker 2]: In the back kitchenette, a large crocodile was looking at his kitchen, a frown as high as the ceiling on his face. His gaze shifted from his kitchenette to the one in front of him. “Psst,” one eye on Ms. Hippo, he whispered to the two in front of him—a piglet and a small spider. “Psst, what is this?”
+
+[Speaker 3]: The piglet leaned back. “I-I-I-I,” she stuttered, “I think it is human.” [Speaker 4]: The small spider nodded emphatically, bouncing on her front four legs. “Definitely human.”
+
+[Speaker 2]: “I know it is human,” the crocodile whispered. “I ate one hand once.” He made a face as if he remembered the taste, his tongue sticking out. “Disgusting.”
+
+[Speaker 1]: “ARE THERE ANY QUESTIONS ALREADY?” Ms. Hippo stamped through the room toward the crocodile. “OTHERWISE, YOU CAN ASK ME!”
+
+[Speaker 2]: The crocodile slouched immediately; everyone in the kingdom knew how dangerous hippos were. “No, miss. All fine, miss,” he said, making a small bow after every sentence.
+
+[Speaker 3]: “We-we-we.” The piglet inhaled and closed her eyes. “We wondered why human?” she said, visibly relaxing when the sentence was out.
+
+[Speaker 1]: “WELL, ahum.” The hippo sat down, her voice retreating. “We all know we eat humans, so it was a safe decision.”
+
+[Speaker 4]: “I—” The spider jumped up and down on all eights. “Don’t eat humans!”
+
+[Speaker 1]: “Well, I thought,” Ms. Hippo said in her friendliest voice, “you know the famous spiders ate them, so—” Ms. Hippo started to walk back to her less-equipped kitchenette at the front of the class.
+
+[Speaker 4]: “You mean Shelob and Aragog, don’t you?” The little spider walked toward her, her front two paws in the air.
+
+[Speaker 3]: “It-it-it—” The piglet caught her before she was too far. “Itsy-Bitsy, relax. She didn’t mean anything by it,” Piglet said.
+
+[Speaker 4]: “It is not okay.” Itsy-Bitsy went red. “They are not spiders.” Furious, squeaking words. “One is more of an ant; spiders do not live in families.”
+
+[Speaker 5]: “Very true.” A regal voice came across the aisle—a large lion, black mane, one large scar over his eye. “Also impossible that they live in a forest with so many,” Scar said to Itsy-Bitsy, his eyes showing a twinkle. “The forest would be eaten empty.”
+
+[Speaker 4]: “Ex. Act. Ly.” Itsy-Bitsy riled up at the sudden windfall of her point. “And the other one is a demon that took spider form.”
+
+[Speaker 5]: “Cultural appropriation,” Scar said.
+
+[Speaker 4]: “Yes.” Itsy-Bitsy walked over the kitchenette in perfect lines, back and forth. “We need to take back our culture, we need—”
+
+[Speaker 1]: “AAAAHHHHHH!!” Ms. Hippo yelled. A large pot flew through the air. The whole room went quiet.
+
+“Yes, dear, and who invented these?” she said, looking for another pan for her demo.
+
+[Speaker 4]: “Humans!” Itsy-Bitsy screamed, looking her dish in the eye. “Suffer!”
+
+[Speaker 5]: Scar tried to rally her once more. “Spiders don’t eat; they only drink.”
+
+But the moment passed. Disappointed, he sat back down and played with his food.
+
+\*\*\*
+
+[Speaker 1]: “So,” Ms. Hippo sat back down in front of the class, “we first warm the water.” Her example was a small pot of water, as the large pot lay crumpled somewhere in the back of the class.
+
+[Speaker 3]: “S-s—” Piglet wanted to ask something, her eyes big with terror. Her hand went down.
+
+[Speaker 5]: “Did you want to ask something, Piglet?” Scar said in a loud voice. Piglet dropped the pan out of her hands in shock.
+
+[Speaker 2]: A whisper of a laugh came from the crocodile one place further.
+
+[Speaker 1]: “Yes, PIGLET?” Ms. Hippo slammed the blackboard with her behind, trying to face her student. It immediately broke into three pieces. All was very quiet in the room. Scar and the crocodile took a step back. Their eyes met as their heads turned toward the door, like athletes waiting for a start signal.
+
+“Oh dear,” Ms. Hippo said, looking at the broken board. “Not very sturdy, was it?” Silence filled the room.
+
+[Speaker 3]: “Eh, eh, eh—” Piglet startled; she obviously did not want to upset Ms. Hippo any more. Students had died for less in her class.
+
+“We boil it alive?” She looked troubled, eyes big and starting to tear.
+
+[Speaker 1]: “Oh, you sensitive little creatures.” Ms. Hippo waddled to her, destroying a pot and a door; Scar, not amused, wisely decided not to comment.
+
+“You can kill it first if you want,” Ms. Hippo said.
+
+[Speaker 3]: “I-I-I—” Piglet looked at her feet. “I don’t want to kill it.”
+
+[Speaker 1]: “That’s fine; that’s why you have a partner.” [Speaker 4]: Itsy-Bitsy immediately jumped on the human, screaming, “Die, die, die, you appropriator!” Due to her size, she was not very effective. Still, after a few minutes, the human stopped moving.
+
+[Speaker 5]: “Why don’t we have partners?” Scar looked at the empty spot next to him.
+
+[Speaker 1]: “You know why. They all cry and walk away after a few minutes,” Ms. Hippo snorted.
+
+[Speaker 5]: Scar smiled. He sat proud, tail flapping.
+
+[Speaker 2]: “And me?” the crocodile said.
+
+[Speaker 1]: “Do you want to partner with Scar?”
+
+[Speaker 2]: The crocodile looked at Scar, who still smiled. “Point taken. So kill it first?” The crocodile bit the human, then rolled on the floor until the dish stopped moving.
+
+[Speaker 5]: “It has a certain elegance to it,” Scar laughed. “Some sort of dance.”
+
+[Speaker 2]: The crocodile stood up; the floor was filling with blood fast. “Well, how do you do it?”
+
+[Speaker 5]: “Not I—let it…” He watched the human, put his head close to its ear. “Boil to death.” Scar enjoyed how the human shivered with dread.
+
+[Speaker 1]: “Good,” Miss Hippo told him. “That’s how you preserve the flavour.”
+
+\*\*\*
+
+The whole class was dicing side dishes to cook along with their main dish.
+
+[Speaker 2]: “I’m sorry.” The crocodile raised his hand.
+
+[Speaker 1]: “Yes?” Ms. Hippo was sitting on top of the broken blackboard.
+
+[Speaker 2]: “I wondered what to put in,” the crocodile said. “I cannot digest carrots or onions; bacon seems, eh, inappropriate.” He glanced at Piglet, who immediately looked at her feet.
+
+[Speaker 4]: Itsy-Bitsy jumped off her kitchenette and started to run at the crocodile.
+
+[Speaker 1]: “Well, you don’t have to add anything,” Miss Hippo said. “Or boil it, for that matter.”
+
+[Speaker 5]: “So why this class?” Scar already ate half of his meal before even starting to cook. “Seems pointless.”
+
+[Speaker 1]: “WHAAT?” Miss Hippo stood up. Scar had two paws on a piece of leg, already mauled to the bone. He looked up.
+
+[Speaker 3]: “You-you-you—” Piglet stuttered. “We were so close,” she ended, nibbling on a raw carrot.
+
+[Speaker 5]: “Well, I am just saying.” Scar eyed Miss Hippo. “Taught to cook meat by a vegetarian.” He smiled. “Just seems off.” His eyes flashed. “Like learning how to draw from a blind man.”
+
+[Speaker 1]: Miss Hippo stood up slowly, walked step by step to Scar. “Mister Scar,” she said as she came close, “did you want to comment about my weight?”
+
+[Speaker 5]: Scar stopped eating, his two ears pointed straight up. He didn’t realise until now. But he did want to comment about her weight. Now it was all he could think of.
+
+[Speaker 4]: At that moment, Itsy-Bitsy reached the crocodile and was violently stabbing his nostril. “There, with your bacon! I will make a purse out of you!”
+
+[Speaker 2]: The crocodile could not reach his nose and fell down, rolling on the floor.
+
+[Speaker 3]: “It-it-it—Itsy!” Piglet ran toward her partner. “Get him, Itsy!” as she kicked the crocodile right in the groin.
+
+[Speaker 5]: Scar looked skittish, Miss Hippo just a few steps away from him.
+
+“What’s wrong with your weight?” His heart was racing. He knew this was a lost cause. “There is a zipcode attached to it.” The other animals in the class started to shift in unease. “You have your own gravity field.” Scar sighed after he said the words; after all these times, self-control was still his weak spot. His counselor thought he needed a self-control class. Instead, he chose a cooking class.
+
+[Speaker 1]: “WHAT?” Miss Hippo pranced like she was a pony; when coming down, she snapped the kitchenette right in half.
+
+[Speaker 5]: “So I am not saying you have a problem—every chair in the world does!” Scar cried. He simply couldn’t help himself.
+
+[Speaker 1]: Miss Hippo went full rage mode. She charged the sad-looking lion, throwing him into the air with her mighty head.
+
+[Speaker 5]: Scar landed on his feet on top of the crocodile, who had only wanted to take a cooking class to move on from that terrible day—the day he ate a human hand.
+
+[Speaker 2]: The crocodile screamed as the nails of the adult male lion pushed into his skin.
+
+[Speaker 4]: “No!” Itsy-Bitsy climbed on Scar and went straight for the eyes. “You ruined my leather purse!” she screamed. Itsy-Bitsy and Piglet had taken the cooking class as they were getting married and wanted to spend some time together.
+
+[Speaker 3]: Piglet joined Itsy-Bitsy in her attack now that the crocodile was beaten. After all, the whole thing should be a bonding exercise.
+
+[Speaker 1]: “You all ruined my class!” Miss Hippo charged full into the group, straight through another kitchenette. Wood splinters, pots, pans, and spices flew everywhere.
+
+Miss Hippo didn’t usually teach the cooking class; her friend Shere Khan had asked her to fill in as he was ill. She had no idea how to cook humans.

@@ -1,0 +1,4 @@
+azure-cognitiveservices-speech>=1.40.0
+pydub>=0.25
+langid>=1.1
+python-dotenv>=1.0
