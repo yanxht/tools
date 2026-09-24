@@ -1,0 +1,9 @@
+.venv/
+.env
+__pycache__/
+inputs/*
+outputs/*
+artifacts/*
+!inputs/.gitkeep
+!outputs/.gitkeep
+!artifacts/.gitkeep

@@ -1,0 +1,9 @@
+# Optional extras for deep reconstruction (LaMa inpainting).
+# NOTE: `simple-lama-inpainting` does NOT build on Python 3.13 (its setup.py
+# reads a missing __version__). Install in a Python 3.12 venv instead:
+#
+#   /opt/homebrew/bin/python3.12 -m venv .venv-lama
+#   source .venv-lama/bin/activate
+#   pip install -r requirements-lama.txt
+#
+simple-lama-inpainting>=0.1
